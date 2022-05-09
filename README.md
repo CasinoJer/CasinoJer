@@ -11,3 +11,7 @@ Ik mis jullie ontzetten, guys!
 Ik wens jullie het allerbeste toe!!!!
 
 XX Jer
+
+PS. Er zit echt een hoop onzin in die megafile. Like, je hoeft het eigenlijk niet eens te lezen.
+Het is alleen mogelijk nuttig om een jer mogelijk een kleinbeetje beter te begrijpen ofzo.
+(Het is alleen wel extreem fucking cringe tho. Like de jer van pre-2022 kon echt niet schrijven joh... wtf)
