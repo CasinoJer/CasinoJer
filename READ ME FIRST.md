@@ -20,7 +20,7 @@ Verder wil ik eigenlijk ook wekelijks verslag een journal entry schrijven. Deze 
 Ik mis jullie ontzetten, guys!
 Ik wens jullie het allerbeste toe!!!!
 
-XX Jer
+XXX Jer
 
 PS. Er zit echt een hoop onzin in die megafile. Like, je hoeft het eigenlijk niet eens te lezen.
 Het is alleen mogelijk nuttig om een jer mogelijk een kleinbeetje beter te begrijpen ofzo.
